@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @codersiva26
-- 👀 I’m interested in ...developing myself 
+- 👀 I’m interested in ...developing myself by learning new skills
 - 🌱 I’m currently learning ...b.tech
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
